@@ -1,12 +1,1 @@
-cñjkdhcnkcslkhlkchsbñv
-sadvadf+vhdfv
-adv
-f
-dv
-dfvdf
-v
-df
-vas
-va
-sfv
 Bye...
